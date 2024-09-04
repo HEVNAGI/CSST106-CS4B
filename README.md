@@ -41,7 +41,7 @@ Sir Goodeve po diko po mapagana yung Video po yung MP4 di po mailagay sa unahan 
 ![image alt](https://github.com/HEVNAGI/CSST106-CS4B/blob/main/IMAGES/32.png)
 ![image alt](https://github.com/HEVNAGI/CSST106-CS4B/blob/main/IMAGES/33.png)
 ![image alt](https://github.com/HEVNAGI/CSST106-CS4B/blob/main/IMAGES/34.png)
-![image alt](https://github.com/HEVNAGI/CSST106-CS4B/blob/main/IMAGES/34.png)
+
 
 
 
