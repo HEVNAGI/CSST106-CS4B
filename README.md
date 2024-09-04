@@ -1,5 +1,9 @@
 # MAGPANTAY CSST106-CS4B
 MACHINE PROBLEM 1 BY MAGPANTAY JANDEL BSCS 4B
+
+
+
+
 Sir Goodeve po diko po mapagana yung Video po yung MP4 di po mailagay sa unahan naka view raw lang po pero na upload ko naman po pag pinindot po yung view raw na dadownload naman po yung video thankyou po sir have a nice day
 
 
