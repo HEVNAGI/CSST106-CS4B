@@ -7,6 +7,9 @@ MACHINE PROBLEM 1 BY MAGPANTAY JANDEL BSCS 4B
 Sir Goodeve po diko po mapagana yung Video po yung MP4 di po mailagay sa unahan naka view raw lang po pero na upload ko naman po pag pinindot po yung view raw na dadownload naman po yung video at napapanood po thankyou po sir have a nice day
 
 
+
+
+
 ![image alt](https://github.com/HEVNAGI/CSST106-CS4B/blob/main/IMAGES/1.png?raw=true)
 ![image alt](https://github.com/HEVNAGI/CSST106-CS4B/blob/main/IMAGES/2.png)
 ![image alt](https://github.com/HEVNAGI/CSST106-CS4B/blob/main/IMAGES/3.png)
