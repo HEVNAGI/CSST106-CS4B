@@ -2,9 +2,10 @@
 MACHINE PROBLEM 1 BY MAGPANTAY JANDEL BSCS 4B
 
 
+https://github.com/user-attachments/assets/1670dc51-377e-456b-9eae-1f4862a7ed3a
 
 
-Sir Goodeve po diko po mapagana yung Video po yung MP4 di po mailagay sa unahan naka view raw lang po pero na upload ko naman po pag pinindot po yung view raw na dadownload naman po yung video at napapanood po thankyou po sir have a nice day
+Sir Goodeve po Pasensya napo medyo na iba yung background di po kinaya ng size ng gitub
 
 
 
