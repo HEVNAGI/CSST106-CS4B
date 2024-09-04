@@ -5,7 +5,7 @@ MACHINE PROBLEM 1 BY MAGPANTAY JANDEL BSCS 4B
 https://github.com/user-attachments/assets/1670dc51-377e-456b-9eae-1f4862a7ed3a
 
 
-Sir Goodeve po Pasensya napo medyo na iba yung background di po kinaya ng size ng gitub
+Sir Good morning po Pasensya napo medyo na iba yung background di po kinaya ng size ng github
 
 
 
